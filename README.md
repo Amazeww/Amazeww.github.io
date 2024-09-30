@@ -1,1 +1,1 @@
-Designed by Chhavil and Vruttika
+Designed by Team Snippets
